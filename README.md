@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WisnefskeNick
-- 🌱  I’m currently a 3rd year student at the University of Wisconsin Stout Pursuing 2 Bachelors degrees and 4 minors with them.
+- 🌱  I’m currently a student at the University of Wisconsin Stout Pursuing 2 Bachelors degrees with 2 minors.
 -         Degrees: Digital Marketing Technology and Information and Communication Technologies.
--         Minors: Business Administration, Sales and Marketing, Enterprise Technology, and Computer Science.
+-         Minors: Business Administration and Computer Science.
 - 📫 How to reach me:
 -         Personal Email: wisnefskenicholas901@gmail.com
 -         School Email: wisnefsken2894@my.uwstout.edu
